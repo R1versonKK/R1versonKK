@@ -2,7 +2,7 @@
 - 👀 I’m interested in being human.
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate with Travis Scott
-- 📫 How to reach me? You can text me here @R1ver:sonKK[https://t.me/shplexindoxx]
+- 📫 How to reach me? You can text me here [@R1ver:sonKK](https://t.me/shplexindoxx)
 - 😄 Pronouns: Hi/Hit
 - ⚡ Fun fact: I'm human
 
